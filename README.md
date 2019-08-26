@@ -18,3 +18,5 @@ https://zety.com/blog/ux-designer-resume-and-ui-developer-resume-examples
  Portfoilis  https://medium.com/bestfolios/8-brilliant-ux-designer-resumes-that-secured-job-offers-from-google-c9e534adafc2  
  https://www.bestfolios.com  
  
+ # Starting as freelancer
+https://www.existenzgruender.de/EN/Home/inhalt.html
